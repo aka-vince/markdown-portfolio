@@ -6,4 +6,4 @@
 
 -Bananas :heart:
 
--Watermone :smile:
+-Watermelon :smile:
