@@ -1,1 +1,9 @@
-Replace this with a list of your favorite things.
+-Strawberries :heart:
+
+-Mangos :heart:
+
+-Grapefruit :-1:
+
+-Bananas :heart:
+
+-Watermone :smile:
